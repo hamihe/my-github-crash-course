@@ -1,4 +1,4 @@
-# Important intructions
+# Important instructions
 
 
 Plaa ... plaa ..plaa...
